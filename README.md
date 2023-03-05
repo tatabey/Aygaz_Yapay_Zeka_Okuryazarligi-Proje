@@ -1,1 +1,1 @@
-# Aygaz_Yapay_Zeka_Okuryazarl-Proje
+# Aygaz_Yapay_Zeka_Okuryazarligi-Proje
